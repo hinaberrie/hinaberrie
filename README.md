@@ -1,1 +1,1 @@
-![]()
+![batarou](https://media.discordapp.net/attachments/1073426429280272535/1550740979412369530/ce611ac95a7c7ab069f75968fcc21ee4_1.jpg?ex=6aaf6f94&is=6aae1e14&hm=fd6c462a3eae0e418348801215581c462dcb80b6865c367e391d52fe3c52e1e0&=&format=webp)
